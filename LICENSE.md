@@ -1,4 +1,4 @@
-# 
+# Premium pairs trading bot scripts for Mac OS | Advanced pairs trading bot scripts for PC Windows. Featuring router optimization and low-frequency monitoring — optimized for maximum performance on every platform.
 
 
 
